@@ -14,4 +14,4 @@ Our product provide a wide selection: Livery edit/design Logo edit/design Ymap e
 
 Donation perks: 1$> green donate role 20$> 10% off all purchases + gold donate role 50$> 50% off all purchases + premium donate role
 
-Developer positions open now! You are free to apply in the discord. Join today! Link: https://discord.gg/m3MrcvVNgJ
+Developer positions open now! You are free to apply in the discord. Join today! Link: https://discord.gg/7Jrh845UCw
